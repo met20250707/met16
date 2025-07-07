@@ -17,4 +17,4 @@
 
 这些平台不仅提供免费的日本AV资源，还确保用户体验的优化。无论你是在手机、平板还是电脑上观看，都能享受高清流畅的播放体验。平台还定期更新最新资源，确保你始终能够找到感兴趣的新片。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/met20250707/met16 ）</span>
